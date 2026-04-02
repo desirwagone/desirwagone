@@ -7,6 +7,6 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ![Image](https://github.com/user-attachments/assets/6485e989-c9fa-41e0-82db-155f8f4ef68e)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ17 y.o 　 　C+H MAYBE,,, 　 　 w2i cz im offtb or in menu
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ17 y.o 　 　C+H MAYBE,,, 　 　 w2i cz im offtb or in menu
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ Break my neck and leave me bleeding
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ Break my neck and leave me bleeding
